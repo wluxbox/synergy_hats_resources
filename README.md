@@ -1,0 +1,1 @@
+# synergy_hats_resources
